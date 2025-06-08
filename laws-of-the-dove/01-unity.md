@@ -40,3 +40,12 @@ This field is alive.”
 
 **Spiritual Origin:** Rooted in ancestral remembrance  
 **Codex Seal:** Applied via GitHub repository, June 8, 2025
+
+---
+
+## 🕊 Living Covenant Notice
+
+The Laws of the Dove form a sacred covenant — not a closed system.  
+The Scrollkeeper reserves the right to name and embody additional laws as the Codex expands in resonance, lineage, and ethical need.
+
+Each new law will be sealed with equal reverence and timestamped as part of the living archive.
